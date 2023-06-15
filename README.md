@@ -1,5 +1,24 @@
 # 💫 About Me:
-🔭 I’m currently working on lerning<br>👥 I’m looking to collaborate <br>🤝 I’m looking for help with grow up in my work<br>🌱 I’m currently learning<br>💬 Ask me <br>⚡ Fun fact: life
+👨🏻‍🎓 I am Ali Saeedi, a computer engineering bachelor's student from Khwarazmi University.
+
+✨ I am interested in learning modern technology and open source software in my field.
+
+📌 I have been working in this field for about 4 years and I have seen more than 500 hours of training classes.
+
+📌 In the field of project management and cooperation, I have the experience of doing small projects inside the university.
+
+📌 In terms of work experience, I spent 6 months as a back-end developer at Ideal Macin Media Institute.
+
+🔸Also, as soft skills, I have skills in teaching, public speaking, entrepreneurial thinking, decision making in complex situations and thinking outside the box, which I think is effective in team interaction and problem solving.
+
+🔹I am ready to face new challenges and learn advanced technologies to continue to improve my work and achieve greater things with my team.
+
+👨🏻‍💻 I am ready to learn and develop more in the above areas and I will be happy to do this for you and your company.
+I am very happy to be in touch with you
+Contact me through the following link:
+🔗 https://zil.ink/alisaeidi
+
+Sincerely, Ali Saeidi
 
 
 ## 🌐 Socials:
